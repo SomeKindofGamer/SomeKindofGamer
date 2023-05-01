@@ -1,3 +1,2 @@
-- Hi, I’m @SomeKindofGamer
-- I’m interested in Friday Night Funkin'
-- I am a mod developer for Friday Night Funkin.
+I LOVE FNF!!!
+FOLLOW @BackpackShibe ON TWITTER
